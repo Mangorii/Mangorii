@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mangorii
 - 👀 I’m interested in making games
-- 🌱 I’m currently learning how to code
-- 💞️ I’m looking to collaborate on nothing
+- 🌱 I’m currently learning how to code. I wanna learn how to understand code and learn how to write it. 
+- 💞️ I’m looking to collaborate with some friends or in general.
 - 📫 How to reach me email me!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i luv boba
